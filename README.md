@@ -1,1 +1,1 @@
-Ko thủ khoa thì quá tiếc
+Ko thủ khoa thì hơi phíiiiiii
